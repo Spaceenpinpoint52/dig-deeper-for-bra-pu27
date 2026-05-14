@@ -1,4 +1,4 @@
-#  
+#  new Scripts for dig deeper for brainrots offers the most advanced dig deeper for brainrots Script, with esp and auto-collect. Perfect for dominating
 
 
 
